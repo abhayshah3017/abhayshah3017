@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **abhayshah00007@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1p97kFJaQ0baY8WYgTVBieWz-JOx4F99aJKUmygr0Ds4/edit?usp=sharing](https://docs.google.com/document/d/1p97kFJaQ0baY8WYgTVBieWz-JOx4F99aJKUmygr0Ds4/edit?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1wEg-VikQC-P5DYBP7XvlwJ79bJ1f2wYN/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
