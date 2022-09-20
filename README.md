@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **abhayshah00007@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1wEg-VikQC-P5DYBP7XvlwJ79bJ1f2wYN/view?usp=sharing
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/abhay-shah07" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="abhay-shah07" height="30" width="40" /></a>
